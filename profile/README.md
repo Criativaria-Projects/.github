@@ -76,7 +76,6 @@ Por isso a Criativaria existe: pra ocupar esse espaço com clareza, calma e hone
 | Papel | Quem |
 |---|---|
 | Fundadora / responsável final | Maria Rita (Luk) |
-| Operador de IA / eng. de sistemas | Lucas Santana |
 | Voz de marca | Maria Rita (peças de marca); Criativaria coletiva (guias) |
 | Autoria de guias | Comunidade / Criativaria |
 
