@@ -75,7 +75,7 @@ Por isso a Criativaria existe: pra ocupar esse espaço com clareza, calma e hone
 
 | Papel | Quem |
 |---|---|
-| Fundadora / responsável final | Maria Rita (Luk) |
+| Fundadora / responsável final | Maria Rita |
 | Voz de marca | Maria Rita (peças de marca); Criativaria coletiva (guias) |
 | Contribuidora de conteúdo | Lissa Rubí |
 | Autoria de guias | Comunidade / Criativaria |
